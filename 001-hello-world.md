@@ -6,3 +6,4 @@
 
 I LOVE RITZ.
 
+テスト！
